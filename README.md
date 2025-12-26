@@ -23,8 +23,4 @@ Writting, Drawing, Greek mythology, Nevermore, Date Everthyng, Little Nightmares
 
 𝑲𝑰𝑵𝒔/𝑪𝒐𝒎𝒇𝒐𝒓𝒕 𝒄𝒉𝒂𝒓𝒂𝒄𝒕𝒆𝒓𝒔.
 
-Ada, Lenore, Narcissus, Shijima Mei, Sally Fisher, Naarah/Elon.
-
-
-
-I don't own you explanation on why i blocked you/hid you.
+Ada, Lenore, Narcissus, Shijima Mei, Sally Fisher, Naarah, Elon.
