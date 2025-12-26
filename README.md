@@ -1,16 +1,30 @@
-## Hi there 👋
+I hope I'm doing this right💔 might edit later
 
-<!--
-**NarcissusOfThespiae/NarcissusOfThespiae** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Ponytown info:
 
-Here are some ideas to get you started:
+Do not C+H, Roleplay,cover, or make any sexual/romantic joke if i don't know you, i will be rude with you if you do it.
+Don't call me "huzz or wifey" if we're not close/if you're not my gf. it makes me uncomfortable even if its in character.
+if i ignore you or answer coldly it's because i'm uncomfortable or don't know you.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+𝑫𝑵𝑰:
+
+Proshipers/Comshipers,Racists,Nazies,Homophobes,Xenophobes,bad people in general
+Ganymedes x Zeus shippers (block me.)
+Anything x Ganymedes.
+Sharpwolf shippers/ETM Antinous simps
+ETM fans that use it as source/or dumb fans in general.
+
+
+𝑰𝑵𝑻𝑬𝑹𝑬𝑺𝑻𝑺:
+
+Writting, Drawing, Greek mythology, Nevermore, Date Everthyng, Little Nightmares, Sally Face, Little Misfortune, Fran Bow, Catghost, DDLC, TBHK, HSR/GI, Hades I and II, other games.
+
+𝑲𝑰𝑵𝒔/𝑪𝒐𝒎𝒇𝒐𝒓𝒕 𝒄𝒉𝒂𝒓𝒂𝒄𝒕𝒆𝒓𝒔.
+
+Ada, Lenore, Narcissus, Shijima Mei, Sally Fisher, Naarah/Elon.
+
+
+
+I don't own you explanation on why i blocked you/hid you.
